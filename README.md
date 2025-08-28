@@ -1,4 +1,4 @@
-## Hello, my name is Iga! 👋🏼
+## Hello, my name is IgaRamadana! 👋🏼
 
 I am an 21 year old programmer.
 
